@@ -85,9 +85,9 @@ Currently preparing for **placements and internships**, with a strong focus on *
 ---
 
 ## 📫 Connect With Me  
-- 📧 Email: *Add your email here*  
-- 💼 LinkedIn: *Add LinkedIn link*  
-- 🧑‍💻 GitHub: *You’re already here 😄*  
+- 📧 Email: waranlogesh0406@gmail.com 
+- 💼 LinkedIn: https://www.linkedin.com/in/logeshwaran-ashok-022967257/
+- 🧑‍💻 GitHub: You’re already here 😄 
 
 ---
 
